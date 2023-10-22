@@ -1,0 +1,2 @@
+# 1xBet.com
+globalvisacard
